@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **riddhitawde20@gmail.com**
 
-- 📄 Know about my experiences [[[1iZAi-Z0oNpr9VNIAZokFwo72hxoOK7_L/view?usp=sharing](https://drive.google.com/file/d/1iZAi-Z0oNpr9VNIAZokFwo72hxoOK7_L/view?usp=sharing](https://drive.google.com/file/d/1y9xz5TTElyGWAxzwyLQYQ1HRc6sD4aRk/view?usp=sharing)](https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=sharing)](https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=drive_link)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=sharing)](https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
