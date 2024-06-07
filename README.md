@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **riddhitawde20@gmail.com**
 
-- 📄 Know about my experience [https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=drive_link]
+- 📄 Know about my experience https://drive.google.com/file/d/1EujjZYWk5o-F6UP8tX6kJ45OWGKl3r5-/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
